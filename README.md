@@ -1,5 +1,6 @@
-- Hi, I’m @rankrausz 👋 
-- I'm a second year Computer Science student at HUJI 🤓
+Hi, I’m @rankrausz 👋 
+
+I'm a second year Computer Science student at HUJI 🤓
 
 Always up for a challenge 🤝🏽
 ran.krausz@gmail.com
