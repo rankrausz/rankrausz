@@ -1,7 +1,7 @@
 - Hi, I’m @rankrausz 👋 
 - I'm a second year Computer Science student at HUJI 🤓
 
-don't hesitate to collab with me! 🤝🏽
+Always up for a challenge 🤝🏽
 ran.krausz@gmail.com
 
 have a great day!
