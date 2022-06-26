@@ -3,7 +3,7 @@ Hi, I’m @rankrausz 👋
 I'm a second year Computer Science student at HUJI 🤓
 
 Always up for a challenge 🤝🏽
-ran.krausz@gmail.com
+krausz.ran@gmail.com
 
 have a great day!
 
